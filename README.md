@@ -1,16 +1,22 @@
-### Hi there 👋
+[![yahweh](https://lanyard.cnrad.dev/api/900072916597735444)](https://discord.com/users/1031983980620288061)
+
+do not message me
+
+do not contact me
+
 
 <!--
-**expIoiter/expIoiter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+get out of my head
+get out of my head
+get out of my headget out of my head
+get out of my head
+get out of my headget out of my headget out of my head
+get out of my headget out of my headvget out of my head
 
-Here are some ideas to get you started:
+sdf;'sdkflik sujdfkljhsdjkg hsdkjlg hdflsjkhgkhk j GUUCJLKCJJKLCDJKLCSKLJC
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+s
+i need help if you see this please get me help
+get out of my head
+
 -->
